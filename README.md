@@ -27,3 +27,5 @@ Super future thoughts/interests:
 * AR
 * Space
 * consciousness transfer into machines(haha)
+
+Will note I owe everything to my older sister and her mother for taking care of me/giving me the chance to have a life. Hate to melodramatic ha but they had no reason to care for me.
