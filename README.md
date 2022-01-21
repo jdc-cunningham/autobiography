@@ -29,3 +29,25 @@ Super future thoughts/interests:
 * consciousness transfer into machines(haha)
 
 Will note I owe everything to my older sister and her mother for taking care of me/giving me the chance to have a life. Hate to melodramatic ha but they had no reason to care for me.
+
+# Through the years
+I am feeling moody right now, the words will flow.
+
+### < 2003
+I was in the Philippines. I was born there, American father/Filipina mother. I was very uneducated and aside from the abuse I went through (step mother) I had good folks around me. My father had a stroke and was taken to the US, it was lucky I was taken too. Two people took me in (half-sister and her mother who became my mother as in raise me/took care of me). I don't know why they did it, I ask them time to time.
+
+### 2003 (10 yrs old)
+I now live in Alaska. I caught up in education with Sylvan learning enter. I was trying to make my own toy airplanes at this point. I sculpted a foam airplane and connected a 9V battery to an rc truck motor (dumb). The airplane sucked at flying. My sister was in the Air Force and there were 3 bases so I saw a lot of aircraft.
+
+### 2003 - 2006
+We move to Wisconsin. I live here for a few years. Had great teachers. Played football/basketball was not that great and was in choir.
+
+### 2006 - 2016
+I now live in New York. Live with two "nephews" by law, though one's older than me. Other one is gone unfortunately (died recently). Finished middle school/high school here and went to college here (failed out too). SUNY Fredonia 2010-2012 Phys-Engineering co-op major, had low 2.# GPA at the end of the two years. Had another chance to try again in 2013 at University at Buffalo but failed out there as well. At this point I had tried to switch to comp sci and started taking some intro courses there like logic, discrete and Java. I was a bad student but I did enjoy the CSE-241 course (logic) eg. designing an ALU. Around 2013 is when I got the bug/itch for web dev. Really I was trying to manifest an escape from me failing out of school and having all this debt. At the time $30K was a big number to me. One of those things is making high-traffic websites and making money through ads (which I now hate and won't use on my own stuff given a choice).
+
+### 2016 - now
+My finances imploded at this point. The fraternity I was part of was very helpful with regard to cheap rent. I spent a lot of time learning/making things web-dev related. I was unemployed and tried to escape my life/reality by crashing with a friend who was living in MO. He was stationed at a base there though from PA originally. I was unemployed for a while, my friend was patient but eventually I did have to work. I did some freelance web stuff but did not make that much money. We eventually move to Kansas where I am now. I finally break into a real full time job at a web agency from labor work eg. I was washing plates and freelancing "full stack developer" back then was the hot term. I was even part of a German team that found me on Hacker News briefly but they let me go as I took too long on my tasks. This was in 2017 so I didn't have much professional experience yet. I was getting tired of my job of making PSDs for Wordpress so I got on LinkedIn. I don't know why/how but people thought I was good enough to work as a software engineer contractor. I did that for 2 years 4 mos. I wanted to do something new but a few months from this, took over a role on the side for some company. We're doing something now but it's not 100% public yet.
+
+Anyway my general plans are probably mentioned above but financial independence is #1 and then to pursue learning. I was fortunate to grow up and have an American childhood. But recently (couple years ago) I made contact with people with the Philippines and have been helping them. I mean they are still living on dirt with crappy internet and no water... so I helped them get a well and I support them monthly.
+
+I eventually hope to get into some kind of robotic/hardware-software type job. That would be cool or I'll be financially independent and do it myself but still. There is a lot to do.
