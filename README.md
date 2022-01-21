@@ -34,7 +34,7 @@ Will note I owe everything to my older sister and her mother for taking care of 
 I am feeling moody right now, the words will flow.
 
 ### < 2003
-I was in the Philippines. I was born there, American father/Filipina mother. I was very uneducated and aside from the abuse I went through (step mother) I had good folks around me. My father had a stroke and was taken to the US, it was lucky I was taken too. Two people took me in (half-sister and her mother who became my mother as in raise me/took care of me). I don't know why they did it, I ask them time to time.
+I was in the Philippines/Hong Kong/some other places (Sailing Yacht). I was born there, American father/Filipina mother. I was very uneducated and aside from the abuse I went through (step mother) I had good folks around me. My father had a stroke and was taken to the US, it was lucky I was taken too. Two people took me in (half-sister and her mother who became my mother as in raise me/took care of me). I don't know why they did it, I ask them time to time.
 
 ### 2003 (10 yrs old)
 I now live in Alaska. I caught up in education with Sylvan learning enter. I was trying to make my own toy airplanes at this point. I sculpted a foam airplane and connected a 9V battery to an rc truck motor (dumb). The airplane sucked at flying. My sister was in the Air Force and there were 3 bases so I saw a lot of aircraft.
