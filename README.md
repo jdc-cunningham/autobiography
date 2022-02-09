@@ -23,7 +23,7 @@ Super future thoughts/interests:
 
 * GAI
   * perhaps not full sentience either who can do that?
-  * drones that roam the oceans
+* drones that roam the oceans
 * AR
 * Space
 * consciousness transfer into machines(haha)
