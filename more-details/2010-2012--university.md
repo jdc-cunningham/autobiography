@@ -10,7 +10,7 @@ Partied a lot with these guys. At the time I was renting this like cupboard for 
 
 Lugged it up the stairs and into that room. Got a TV and PS3 in there.
 
-I was working 3 jobs, part time dish washer, delivering pizza and something else, I think the tech support job but that might have been earlier.
+I was working 3 jobs, part time dish washer, delivering pizza and something else, ~~I think the tech support job~~ no I was briefly a cook at Denny's but got fired because I was bad.
 
 I was studying phys/eng at this point. I did well initially because I did the work/followed through. My calc classes for example I was at least a B student.
 
