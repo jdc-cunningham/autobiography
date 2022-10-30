@@ -61,3 +61,9 @@ Anyway my general plans are probably mentioned above but financial independence 
 I eventually hope to get into some kind of robotic/hardware-software type job. That would be cool or I'll be financially independent and do it myself but still. There is a lot to do.
 
 I will also note I unfortunately was a jackass a few too many times in my life. Sorry about that. Also just lack of self-awareness/cringe moments. Really dumb decisions.
+
+### 2021
+
+I left my contracting job after it ended and worked as a "technical founder/CTO" for the next 6 months. Which means fancy title, low pay in my case. It was a great experience, as far as making something, pursuing it at great speed. Unfortunately our CEO died and I was also in a lot of debt... I was near/at $0 in terms of local debt eg. CC and I started wracking that up again... so yeah I had to get a job again.
+
+I was fortunate to find a great place.
