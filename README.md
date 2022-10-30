@@ -53,7 +53,7 @@ Anecdote: I used to have less anxiety problems. Like today (2022) I'm afraid to 
 
 The peace of mind (referencing the first video above) it's the experience. I didn't have money but I pursued this hobby relentlessly. It seems like a waste of time now... sanding down an airplane from a block of foam and just tossing it into the sky over and over but yeah... [I still fly when I can](https://youtu.be/GpJnvB8M3j0?t=14). My aim is to end up having a piece of land somewhere and do stuff like this.
 
-### 2016 - now
+### 2016 - 2021
 My finances imploded at this point. The fraternity I was part of was very helpful with regard to cheap rent. I spent a lot of time learning/making things web-dev related. I was unemployed and tried to escape my life/reality by crashing with a friend who was living in MO. He was stationed at a base there though from PA originally. I was unemployed for a while, my friend was patient but eventually I did have to work. I did some freelance web stuff but did not make that much money. We eventually move to Kansas where I am now. I finally break into a real full time job at a web agency from labor work eg. I was washing plates and freelancing "full stack developer" back then was the hot term. I was even part of a German team that found me on Hacker News briefly but they let me go as I took too long on my tasks. This was in 2017 so I didn't have much professional experience yet. I was getting tired of my job of making PSDs for Wordpress so I got on LinkedIn. I don't know why/how but people thought I was good enough to work as a software engineer contractor. I did that for 2 years 4 mos. I wanted to do something new but a few months from this, took over a role on the side for some company. We're doing something now but it's not 100% public yet.
 
 Anyway my general plans are probably mentioned above but financial independence is #1 and then to pursue (self) learning (not school). I was fortunate to grow up and have an American childhood. But recently (couple years ago) I made contact with people with the Philippines and have been helping them. I mean they are still living on dirt with crappy internet and no water... so I helped them get a well and I support them monthly.
@@ -67,3 +67,7 @@ I will also note I unfortunately was a jackass a few too many times in my life. 
 I left my contracting job after it ended and worked as a "technical founder/CTO" for the next 6 months. Which means fancy title, low pay in my case. It was a great experience, as far as making something, pursuing it at great speed. Unfortunately our CEO died and I was also in a lot of debt... I was near/at $0 in terms of local debt eg. CC and I started wracking that up again... so yeah I had to get a job again.
 
 I was fortunate to find a great place.
+
+My path continues... pay down debts, learn a lot... but at some point I have to face something in my life. A nexus point lol.
+
+But for now I have time.
