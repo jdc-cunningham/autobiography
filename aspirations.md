@@ -42,7 +42,7 @@ constantly connected to something, mostly to log your thoughts which everyone ha
 
 idk... if the mojo stuff and neuralink happens that would be interesting but being taken over would be a concern
 
-same for home robots with AI that can be taken over... (SecUnit ha)
+same for home robots with AI that can be taken over... (~~SecUnit ha~~ this is not right, more like Ex Machina)
 
 Anyway that's it, moving on
 
